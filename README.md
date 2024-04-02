@@ -5,7 +5,7 @@
 # Info
 My homepage
 
-https://kotyopuwwwwww.github.io/my-pfp-en/
+https://babblingkun.github.io/profile-en/
 
 
 ## Credits
