@@ -10,4 +10,4 @@ https://kotyopuwwwwww.github.io/my-pfp-en/
 
 ## Credits
 
-Kotyopuwwwwww
+Babblingkun
